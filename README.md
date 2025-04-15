@@ -1,1 +1,1 @@
-# AppAdsTxt
+# Gaming Stock
